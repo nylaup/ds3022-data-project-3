@@ -1,4 +1,4 @@
-# Team Coco
+# Team 
 
 ## Team members
 
